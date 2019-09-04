@@ -1,0 +1,1 @@
+# kurang-tambah-stok-barang
